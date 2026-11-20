@@ -1,0 +1,2 @@
+# StronaNaNowo
+StronaNaNowo dla businesu
